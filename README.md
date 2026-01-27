@@ -68,7 +68,9 @@
 
 # 🥊/🥋 - MMA (Mixed Martial Arts) | Krav-Maga | Muay-Thai | Taekwondo
 
-# - Tanıtımım Bukadardı Görüşmek Üzere.
+# 🌍 - Connect 
+
+# Discord : ravzyravzy
 
 
 
