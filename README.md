@@ -62,4 +62,13 @@
 - Python İle Gelişmiş Toollar Geliştirme
 
 
+# Başka Ne İle İlgileniyorum ?
+
+# 🥊 Dövüş Spor'ları İle İlgileniyorum.
+
+# 🥊/🥋 - MMA (Mixed Martial Arts) | Krav-Maga | Muay-Thai | Taekwondo
+
+# - Tanıtımım Bukadardı Görüşmek Üzere.
+
+
 
